@@ -1,4 +1,9 @@
 # Meeting organisation
 ## Ort
+ZB MED
+
 ## Zeit
-## Details
+24.12.2019
+
+## Mehr Infos
+kommt alle!
