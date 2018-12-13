@@ -6,4 +6,4 @@ ZB MED
 24.12.2019
 
 ## Mehr Infos
-kommt alle!
+kommt alle und arbeitet mit
